@@ -20,6 +20,18 @@
 
 ---
 
+## 🚀 推荐：AI API 中转服务
+
+<div align="center">
+
+**[镜芯AI · ai.wer.plus](https://ai.wer.plus/register?channel=c_ifxqranj)**
+
+极低价格 · 高稳定性 · 支持 OpenClaw 接入，以极低的成本运行你的龙虾 🦞，支持数百种模型，包含Veo3.1、Sora、Nanobanana等等
+
+</div>
+
+---
+
 ## 快速开始
 
 ### 方式一：下载发布版（推荐）
